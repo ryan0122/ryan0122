@@ -2,7 +2,7 @@
 
 **Senior Frontend Engineer | WCAG Compliance Expert**  
 *Certified IAAP Web Accessibility Specialist (WAS) & DHS Trusted Tester*  
-Denver, CO • [ryan.mack1200@gmail.com](mailto:ryan.mack1200@gmail.com) • [a11ypros.com](https://a11ypros.com)
+Denver, CO • [ryan.mack1200@gmail.com](mailto:ryan.mack1200@gmail.com) • [a11ypros.com](https://a11ypros.com) • [ryanmack.dev](https://ryanmack.dev)
 
 ---
 
